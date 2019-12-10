@@ -1,4 +1,2 @@
 # badges--Data-visualisation
-hello mọi người!
-there is something i wanna tell you now..
-byeee
+cảm ơn vì đã đọc bài của mình
